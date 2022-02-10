@@ -1,0 +1,1 @@
+On the Great Hill, Yolks climb all day and all night. Follow one Yolk as he gets passed by others who happen to be faster at climbing. When he finally meets a Yolk who climbs even slower, he finds that there is one thing he has forgotten. Do you think he'll make it to the top? The allegory of The Great Hill teaches perseverance and perspective. 
